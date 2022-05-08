@@ -1,5 +1,9 @@
 Hi 👋 My name is Bertan Gökalp
-==============================Game Developer--------------Founder of RedPunch Studios and Developer of Soul Searcher.* 🖥️  See my portfolio at [LinkedIn](http:///www.linkedin.com/in/bertangokalp123/)* ✉️  You can contact me at [bertan67xx@outlook.com](mailto:bertan67xx@outlook.com)* 🚀  I'm currently working on [Soul Searcher](http://twitter.com/soulsearchgame)
+==============================Game Developer--------------
+Founder of RedPunch Studios and Developer of Soul Searcher.* 
+🖥️  See my portfolio at [LinkedIn](http:///www.linkedin.com/in/bertangokalp123/)* 
+✉️  You can contact me at [bertan67xx@outlook.com](mailto:bertan67xx@outlook.com)* 
+🚀  I'm currently working on [Soul Searcher](http://twitter.com/soulsearchgame)
 
 ### Skills
 
